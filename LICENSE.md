@@ -1,4 +1,4 @@
-# 
+# professional Adobe Audition for PC | Adobe Audition for Windows Transition | normalization + pitch-shifting offers the most advanced Adobe Audition for PC | Adobe Audition for
 
 
 
